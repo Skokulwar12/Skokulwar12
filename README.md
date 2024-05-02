@@ -17,7 +17,7 @@
 - 🔍 While my professional experience is just beginning, I've been actively honing my skills through coursework, personal projects, and internships.
 ### Get in Touch
 
-- 💬 Connect with me on LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/najirr/)
+- 💬 Connect with me on LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/srushti-kokulwar12/)
 - 📧 For inquiries, drop me an email at srushtik12001@gmail.com
 
 Dive into my projects, let's brainstorm, iterate, and turn data into our greatest ally for innovation! 🚀
